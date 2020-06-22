@@ -6,3 +6,5 @@ Schülerin an der Tree Hill High School. Dabei engagiert sie sich als Cheerleade
 * Hübsch
 * Frech
 * Schlecht in Mathe
+
+> Go Ravens!
